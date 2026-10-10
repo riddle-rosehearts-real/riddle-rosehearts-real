@@ -14,6 +14,8 @@ $\color{#574b4a}\textsf{Feel free to C+H, I don't mind. If you int, just whisper
 
 $\color{#7a1206}\textsf{Extremely mentally unwell/ill, please interact with care. I try not to let it affect others.}$
 
+$\color{#574b4a}\textsf{Basic DNI, I'm anti-endo, anti-proship, etc etc}$
+
 <img width="350" height="19" alt="tumblr_779e97c8df333ce430f0f7c60abd364e_f40e5746_400" src="https://github.com/user-attachments/assets/7857473d-f48c-48a0-9ae9-e238014e65c3" />
 <img width="315" height="500" alt="image" src="https://github.com/user-attachments/assets/49a0e6f8-0d7f-482c-8efd-202e49c1fd90" />
 
