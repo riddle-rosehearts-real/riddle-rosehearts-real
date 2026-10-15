@@ -10,7 +10,7 @@ $\color{#574b4a}\textsf{HE/HIM}$
 
 $\color{#7a1206}\textsf{BODILY 19}$
 
-$\color{#574b4a}\textsf{Feel free to C+H, I don't mind. If you int, just whisper me. I don't talk outside of whisps/party chat.}$
+$\color{#574b4a}\textsf{Feel free to C+H, I don't mind. If you int, just whisper me. I don't talk outside of whisps/party chat. Don't C+H if it's for a ship.}$
 
 $\color{#7a1206}\textsf{Extremely mentally unwell/ill, please interact with care. I try not to let it affect others.}$
 
