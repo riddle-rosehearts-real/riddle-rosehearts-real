@@ -1,6 +1,6 @@
 # $\color{#7a1206}\textsf{"Not knowing how correct I am is your sin."}$
 
-<img width="1529" height="195" alt="image" src="https://github.com/user-attachments/assets/f50cc581-0c8e-4c75-85a5-0c0a2fd4ff67" />
+<img width="1649" height="187" alt="image" src="https://github.com/user-attachments/assets/6eb657f4-cddb-4a5b-a3d3-4be768b65ed6" />
 
 <img width="1563" height="200" alt="tumblr_31eabc438c5584e67375c749effd1da4_985120c8_2048" src="https://github.com/user-attachments/assets/dbfbd4d7-669e-4e56-8f5c-294aafcbfd75" />
 
