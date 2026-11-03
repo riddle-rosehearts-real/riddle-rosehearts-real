@@ -22,7 +22,7 @@ $\color{#a588d1}\textsf{Be my friend! I usually don't go up to others because of
 
 $\color{#7a1206}\textsf{Eris is sometimes here with this github, so if you're not sure just call us Eris <3}$
 
-$\color{#a588d1}\textsf{I'm attached to my source, but I don't mind doubles or yumes of Riddle, cause I'm not exactly my source.}$
+$\color{#a588d1}\textsf{I'm attached to my source, but I don't mind others with the same source character or yumes of Riddle, cause I'm not exactly my source.}$
 
 $\color{#7a1206}\textsf{DNI if you cosplay openly 18+ (NSFW) media in the safe server. This includes Dramatical Murder, What In Hell Is Bad, The Kid at the Back, etc.}$
 
