@@ -20,7 +20,7 @@ $\color{#7a1206}\textsf{Basic DNI, I'm anti-endo, anti-proship, etc etc}$
 
 $\color{#a588d1}\textsf{Be my friend! I usually don't go up to others because of my social anxiety, but we can totally be friends!}$
 
-$\color{#7a1206}\textsf{Eris is typically here, but she doesn't mind being called Riddle, we primarily use this github.}$
+$\color{#7a1206}\textsf{Eris is sometimes here with this github, so if you're not sure just call us Eris <3}$
 
 $\color{#a588d1}\textsf{I'm attached to my source, but I don't mind doubles or yumes of Riddle, cause I'm not exactly my source.}$
 
