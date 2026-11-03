@@ -24,6 +24,8 @@ $\color{#7a1206}\textsf{Eris is typically here, but she doesn't mind being calle
 
 $\color{#a588d1}\textsf{I'm attached to my source, but I don't mind doubles or yumes of Riddle, cause I'm not exactly my source.}$
 
+$\color{#7a1206}\textsf{DNI if you cosplay openly 18+ (NSFW) media in the safe server. This includes Dramatical Murder, What In Hell Is Bad, The Kid at the Back, etc.}$
+
 <img width="350" height="19" alt="tumblr_779e97c8df333ce430f0f7c60abd364e_f40e5746_400" src="https://github.com/user-attachments/assets/7857473d-f48c-48a0-9ae9-e238014e65c3" />
 <img width="315" height="500" alt="image" src="https://github.com/user-attachments/assets/49a0e6f8-0d7f-482c-8efd-202e49c1fd90" />
 
