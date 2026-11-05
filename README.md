@@ -8,7 +8,7 @@ $\color{#7a1206}\textsf{RIDDLE}$
 
 $\color{#a588d1}\textsf{HE/HIM}$
 
-$\color{#7a1206}\textsf{BODILY 19}$
+$\color{#7a1206}\textsf{BODILY 20}$
 
 $\color{#a588d1}\textsf{Feel free to C+H, I don't mind. If you int, just whisper me. I don't talk outside of whisps/party chat. Don't C+H if it's for a ship.}$
 
